@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Germany 
 - 💞️ I’m looking to collaborate on blogging 
 - 📫 How to reach me begaaatours@gmail.com 
-- 😄 Pronouns: ...
+- 😄 Pronouns: www.begaatours.com 
 - ⚡ Fun fact: ...
 
 <!---
